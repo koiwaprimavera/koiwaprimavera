@@ -8,7 +8,7 @@
 
 atabook ㅤ⊹ ㅤothers currently wip~
 
-꒰ 　 Megatron , or Stera , or Ари(<em>чян</em>)
+꒰ 　 Megatron , or Stera , or Ари(<em>чан</em>)
 
 ${\textsf{\color{#a3acc3} infj so}}$ , multilang , 9teen , fictkin/angelkin , eichi tenshouin irl
 
@@ -21,3 +21,4 @@ the woman that had to become selfish enough to save herself
 ㅤ
 
 ꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦ ㅤ⚚ㅤ ꒷꒦︶꒷꒦︶ ๋ ࣭
+
