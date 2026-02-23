@@ -8,7 +8,7 @@
 
 atabook ㅤ⊹ ㅤothers currently wip~
 
-꒰ 　 Megatron , or Stera , or Ари(чян)
+꒰ 　 Megatron , or Stera , or Ари(<em>чян</em>)
 
 ${\textsf{\color{#a3acc3} infj so}}$ , multilang , 9teen , fictkin/angelkin , eichi tenshouin irl
 
