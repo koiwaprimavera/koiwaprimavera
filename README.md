@@ -6,7 +6,7 @@
 
  ![](https://komarev.com/ghpvc/?username=koiwaprimavera&color=6178ac&label=⚠︎)
 
-atabook ㅤ⊹ ㅤothers currently wip~
+atabook ㅤ⊹ ㅤothers r currently wip~
 
 ꒰ 　 Megatron , or Stera , or Ари(<em>чан</em>)
 
