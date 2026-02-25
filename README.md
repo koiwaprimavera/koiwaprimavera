@@ -8,11 +8,11 @@
 
 atabook ㅤ⊹ ㅤothers r currently wip~
 
-꒰ 　 Megatron , or Stera , or Ари(<em>чан</em>)
+୨⎯  　 𝑀egatron , or 𝒮tera , or 𝒜ри(<em>чан</em>)  　 ⎯୧
 
 ${\textsf{\color{#a3acc3} infj so}}$ , 9teen , multilang , fictkin/angelkin , oshikatsu , eichi tenshouin irl
 
-я очень люблю общаться, однако мне бывает трудно подстроиться под нового человека. не ищу постоянного общения, но не против завести новые знакомства :3 
+я очень люблю общаться, однако мне бывает трудно подстроиться под нового человека. не ищу постоянного общения, но не против завести новые знакомства :3 FRAUD TODAY
 
 <img width="99" height="56" alt="Untitled257_20260223145133" src="https://github.com/user-attachments/assets/8bd65c1a-9fba-4563-940c-e0f3e6ddd7cc" /> <img width="99" height="56" alt="Untitled257_20260223145200" src="https://github.com/user-attachments/assets/36d0f3b8-eb0a-486b-a477-73a317d6810f" /> <img width="99" height="56" alt="Untitled257_20260223145217" src="https://github.com/user-attachments/assets/f5f4da60-a2b1-443c-9bf0-3e2f457350d3" />
 
