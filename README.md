@@ -4,7 +4,7 @@
 
  ꒰ ✧ ꒱ 
 
- ![](https://komarev.com/ghpvc/?username=koiwaprimavera&color=6178ac&label=⚠︎)
+ ![](https://komarev.com/ghpvc/?username=koiwaprimavera&color=6178ac&label=ㅤ⚠︎ㅤ)
 
 atabook ㅤ⊹ ㅤothers r currently wip~
 
