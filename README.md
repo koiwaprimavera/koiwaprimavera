@@ -10,7 +10,7 @@
 
 ୨⎯  　 𝑀egatron , or 𝒮tera , or 𝒜ри(<em>чан</em>)  　 ⎯୧
 
-${\textsf{\color{#a3acc3} infj so}}$ , 9teen , multilang , fictkin/angelkin , oshikatsu , eichi tenshouin irl
+${\textsf{\color{#a3acc3} infj so}}$ , adult , multilang , fictkin/angelkin , oshikatsu , eichi tenshouin irl
 
 я очень люблю общаться, однако мне бывает трудно подстроиться под нового человека. не ищу постоянного общения, но не против завести новые знакомства :3 FRAUD TODAY
 
